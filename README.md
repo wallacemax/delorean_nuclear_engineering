@@ -1,0 +1,1 @@
+One of my ongoing side projects (since 2015) has been considering the nuclear engineering of the OG plutonium powered Delorean.  Here's the cruft around that.
